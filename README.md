@@ -5,6 +5,6 @@ Sup body's of meat.
 
 Lets change the world around us?
 
-Everthing around us was created by people no smarter then me an you. 
+Everthing around us was created by people no smarter then you and me. 
 
 Smile more you sad pie of genes.
